@@ -3,7 +3,7 @@
 It started from this conversation: 
 
 [https://mastodon.social/@thomasjwebb/110131667820154776
-]()
+](https://mastodon.social/@thomasjwebb/110131667820154776)
 
 
 And I felt like it'd be a fun mental exercise before bed.  Here's the result:
