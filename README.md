@@ -5,6 +5,8 @@ It started from this conversation:
 [https://mastodon.social/@thomasjwebb/110131667820154776
 ](https://mastodon.social/@thomasjwebb/110131667820154776)
 
+..an attempt to DIY your own reels for these: [https://www.playvisions.com/prod-66-1-789-307/galactic.htm](https://www.playvisions.com/prod-66-1-789-307/galactic.htm)
+
 
 And I felt like it'd be a fun mental exercise before bed.  Here's the result:
 
